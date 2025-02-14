@@ -1,4 +1,4 @@
-# ChatGPT 中文版：最新免费使用指南（支持 GPT-4、GPT-4o、o1、o3 和 DeepSeek R1，无需翻墙）【2025/02/14 更新】
+# ChatGPT 中文版：最新免费使用指南（支持 GPT-4、GPT-4o、o1、o3 和 DeepSeek R1，无需翻墙）【2025/02/15 更新】
 
 **全面体验 ChatGPT 中文版，无需翻墙，支持 GPT-4、GPT-4o、o1、o3 和 DeepSeek R1 及更多中文版功能应用**  
 
